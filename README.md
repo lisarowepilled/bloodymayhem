@@ -3,7 +3,7 @@
  <h5 align="center">
  <img src="https://files.catbox.moe/2pobo2.png">
    
-  ![](https://komarev.com/ghpvc/?username=bloodymayhem&style=flat&color=4560ba&base=19274&label=inxes) ![](https://files.catbox.moe/fxi81m.gif)
+  ![](https://komarev.com/ghpvc/?username=bloodymayhem&style=flat&color=ebbecd&base=19274&label=lovers) ![](https://files.catbox.moe/fxi81m.gif)
 <div align="center">
  <h5 align="center">
  <img src="https://files.catbox.moe/nnr9x6.gif">
