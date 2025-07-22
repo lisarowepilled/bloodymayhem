@@ -3,10 +3,10 @@
  <h5 align="center">
  <img src="https://files.catbox.moe/2pobo2.png">
    
-  ![](https://komarev.com/ghpvc/?username=bloodymayhem&style=flat&color=ebbecd&base=19274&label=lovers) ![](https://files.catbox.moe/fxi81m.gif)
+  ![](https://komarev.com/ghpvc/?username=bloodymayhem&style=flat&color=ebbecd&base=19274&label=lovers)
 <div align="center">
  <h5 align="center">
- <img src="https://files.catbox.moe/nnr9x6.gif">
+ <img src="https://files.catbox.moe/pw24ab.gif">
         
   [help palestine](https://arab.org/click-to-help/palestine/#google_vignette) - [my art](https://rentry.co/monart) - [alt rentry](https://rentry.co/prosecutormiles)
  </div>
